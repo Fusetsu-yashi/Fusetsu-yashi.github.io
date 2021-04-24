@@ -1,0 +1,1 @@
+# Fusetsu-yashi.github.io
